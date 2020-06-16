@@ -1,0 +1,1 @@
+- I wish to be the best developer in any team i find myself in.
